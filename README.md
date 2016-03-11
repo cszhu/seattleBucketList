@@ -103,7 +103,7 @@ Shoutout to Jackie Tseng for many of the activities on here!!
   * Comedy Night (Jai Thai)
 
 
-* * SLU* * 
+**SLU** 
 
 * Activities
   
@@ -112,7 +112,7 @@ Shoutout to Jackie Tseng for many of the activities on here!!
   
 
 
-* * SEATTLE CENTER* * 
+**SEATTLE CENTER** 
 
 * Activities
   
@@ -125,7 +125,7 @@ Shoutout to Jackie Tseng for many of the activities on here!!
   
 
   
-* * DOWNTOWN / BELLTOWN* * 
+**DOWNTOWN / BELLTOWN** 
 
 * Eat
   
@@ -142,7 +142,7 @@ Shoutout to Jackie Tseng for many of the activities on here!!
   
 
   
-* * PIONEER SQ / INTERNATIONAL DISTRICT* * 
+**PIONEER SQ / INTERNATIONAL DISTRICT** 
 
 * Eat
   
@@ -159,7 +159,7 @@ Shoutout to Jackie Tseng for many of the activities on here!!
   
 
   
-* * FREMONT/UW* * 
+**FREMONT/UW** 
 
 * Eat
   * Paseo (T-Fri 11-9, Sat 11-8)
@@ -176,7 +176,7 @@ Shoutout to Jackie Tseng for many of the activities on here!!
   
 
   
-* * BALLARD* * 
+** BALLARD** 
 
 * Eat
   * Paseo (Ballard: T-Sat 11-8, Sun 11-6)
@@ -186,12 +186,11 @@ Shoutout to Jackie Tseng for many of the activities on here!!
   
 
 
-* * ELSEWHERE* * 
+**ELSEWHERE** 
 * Eat
   * Rainier BBQ
   
 * Activities
   * Boeing Factory Tour
   * Hiking
-  
 
