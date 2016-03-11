@@ -29,6 +29,7 @@ Shoutout to Jackie Tseng for many of the activities on here!!
 * Chihuly Garden and Glass
 
 **FESTIVALS**
+
 [Here's](http://www.visitseattle.org/things-to-do/events/festivals/) a list of some festivals.
 
 * [Seafood Fest](http://seafoodfest.org/) (July 9 - 10)
@@ -41,6 +42,7 @@ Shoutout to Jackie Tseng for many of the activities on here!!
   * Griz, Gramatik, STS9, Beats Antique, Keys N Krates. 4 days of live music, stunning mountain scenery, and outdoor recreation including rock climbing, river rafting, and horseback riding.
 
 **PLACES**
+
 [Here's](http://www.visitseattle.org/things-to-do/day-trips/) a list of some day trips.
 
 * Mount Rainier
