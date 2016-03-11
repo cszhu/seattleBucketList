@@ -1,7 +1,7 @@
-# seattleBucketList
-seattle 2k16!!! 
+# Guide to Amazon Internship in Seattle: How to Have a Bomb Ass Time"
+Seattle is a big city, and we're only going to be here for 12 weeks. The goal is to hit everything on this bucketlist.
 
-thanks to jackie tseng
+Shoutout to Jackie Tseng for many of the activities on here!!
 
 ##Things to do by category
 **ACTIVITIES** 
