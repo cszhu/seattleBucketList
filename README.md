@@ -3,159 +3,159 @@ seattle 2k16!!! it's gonna be lit fam!!
 thanks to jackie tseng
 
 ##Things to do by category
-**ACTIVITIES**
+**ACTIVITIES** 
 
-*Kayaking
-*Pike's Place (Morning / lunch)
-*Laser Show (Saturday night)
-*Ice Cream Cruise (Sun 11-5; $11 adult)
-*Columbia Tower (9a-10p; $9 student)
-*Fremont Troll
-*Gas Works Park
-*Ballard Locks (7a - 8:45p; free)
-*Space Needle
-*Smith Tower Observatory (10-5, $7.50)
-*Bill and Melinda Gates Visitor's Center (T 10-6, W-Sat 10-5)
-*Comedy Night (Pioneer Sq / Jai Thai)
-*Gameworks Arcade
-
-
-**RESTAURANTS**
-
-*Espresso Vivace (coffee)
-*Paseo (Ballard: T-Sat 11-8, Sun 11-6; Fremont: T-Fri 11-9, Sat 11-8)
-*Resto (M-Sat: 6:30p-10p)
-*Shiro's (line up at 5)
-*Maneki (reservation)
-*Americana
-*The Pink Door
-*Molly Moon Ice Cream (12-10)
-*Tsukushinbo (reservation)
-*Chinook's
-*Pestle Rock
-*Rainier BBQ
-*Bizzarro
-*Red Cow
-*Rock Creek Seafood
-*Blind Pig Bistro
+* Kayaking
+* Pike's Place (Morning / lunch)
+* Laser Show (Saturday night)
+* Ice Cream Cruise (Sun 11-5; $11 adult)
+* Columbia Tower (9a-10p; $9 student)
+* Fremont Troll
+* Gas Works Park
+* Ballard Locks (7a - 8:45p; free)
+* Space Needle
+* Smith Tower Observatory (10-5, $7.50)
+* Bill and Melinda Gates Visitor's Center (T 10-6, W-Sat 10-5)
+* Comedy Night (Pioneer Sq / Jai Thai)
+* Gameworks Arcade
 
 
-**TOURS/MUSEUMS**
+**RESTAURANTS** 
 
-*Underground Tour ($15 student)
-*Duck Tour ($28 adult)
-*Bites of Seattle Tour
-*Museum of Art
-*Pinball Museum ($10 adult)
-*EMP Museum ($20 student)
-*Chihuly ($22 adult)
-*Boeing Factory Tour
+* Espresso Vivace (coffee)
+* Paseo (Ballard: T-Sat 11-8, Sun 11-6; Fremont: T-Fri 11-9, Sat 11-8)
+* Resto (M-Sat: 6:30p-10p)
+* Shiro's (line up at 5)
+* Maneki (reservation)
+* Americana
+* The Pink Door
+* Molly Moon Ice Cream (12-10)
+* Tsukushinbo (reservation)
+* Chinook's
+* Pestle Rock
+* Rainier BBQ
+* Bizzarro
+* Red Cow
+* Rock Creek Seafood
+* Blind Pig Bistro
+
+
+**TOURS/MUSEUMS** 
+
+* Underground Tour ($15 student)
+* Duck Tour ($28 adult)
+* Bites of Seattle Tour
+* Museum of Art
+* Pinball Museum ($10 adult)
+* EMP Museum ($20 student)
+* Chihuly ($22 adult)
+* Boeing Factory Tour
 
 ##Things to do by area
-**CAP HILL / MADRONA**
+**CAP HILL / MADRONA** 
 
-*Eat
+* Eat
   
-  *Espresso Vivace (coffee)
-  *Molly Moon Ice Cream (12-10)
-  *Americana (brunch / dinner)
-  *Resto (M-Sat: 6:30p-10p)
-  *Red Cow
-  *Blind Pig Bistro
+  * Espresso Vivace (coffee)
+  * Molly Moon Ice Cream (12-10)
+  * Americana (brunch / dinner)
+  * Resto (M-Sat: 6:30p-10p)
+  * Red Cow
+  * Blind Pig Bistro
   
-*Activities
-  *Comedy Night (Jai Thai)
-
-
-**SLU**
-
-*Activities
-  
-  *Ice Cream Cruise (Sun 11-5; $11 adult)
-  *Kayaking
-  
+* Activities
+  * Comedy Night (Jai Thai)
 
 
-**SEATTLE CENTER**
+* * SLU* * 
 
-*Activities
+* Activities
   
-  *Duck Tour
-  *EMP Museum ($20 student)
-  *Chihuly ($22 adult)
-  *Bill and Melinda Gates Visitor's Center (T 10-6, W-Sat 10-5)
-  *Space Needle
-  *Laser Show (Saturday night)
+  * Ice Cream Cruise (Sun 11-5; $11 adult)
+  * Kayaking
   
 
-  
-**DOWNTOWN / BELLTOWN**
 
-*Eat
+* * SEATTLE CENTER* * 
+
+* Activities
   
-  *Pike's Place (Morning / lunch)
-  *The Pink Door
-  *Zig Zag Cafe
-  *Shiro's (line up at 5)
-  
-*Activities
-  
-  *Bites of Seattle Tour
-  *Museum of Art
-  *Gameworks Arcade
+  * Duck Tour
+  * EMP Museum ($20 student)
+  * Chihuly ($22 adult)
+  * Bill and Melinda Gates Visitor's Center (T 10-6, W-Sat 10-5)
+  * Space Needle
+  * Laser Show (Saturday night)
   
 
   
-**PIONEER SQ / INTERNATIONAL DISTRICT**
+* * DOWNTOWN / BELLTOWN* * 
 
-*Eat
+* Eat
+  
+  * Pike's Place (Morning / lunch)
+  * The Pink Door
+  * Zig Zag Cafe
+  * Shiro's (line up at 5)
+  
+* Activities
+  
+  * Bites of Seattle Tour
+  * Museum of Art
+  * Gameworks Arcade
+  
+
+  
+* * PIONEER SQ / INTERNATIONAL DISTRICT* * 
+
+* Eat
   
   Tsukushinbo (reservation)
   Maneki (reservation)
   
-*Activities
+* Activities
   
-  *Underground Tour
-  *Columbia Tower (9a-10p; $9 student; recommend sunset)
-  *Pinball Museum ($10 adult)
-  *Underground Comedy Night
-  *Smith Tower Observatory (10-5, $7.50)
-  
-
-  
-**FREMONT/UW**
-
-*Eat
-  *Paseo (T-Fri 11-9, Sat 11-8)
-  *Din Tai Fung
-  *Chinook's
-  *Pestle Rock
-  *Bizzarro
-  *Rock Creek Seafood
-  
-*Activities
-  
-  *Fremont Troll
-  *Gas Works Park
+  * Underground Tour
+  * Columbia Tower (9a-10p; $9 student; recommend sunset)
+  * Pinball Museum ($10 adult)
+  * Underground Comedy Night
+  * Smith Tower Observatory (10-5, $7.50)
   
 
   
-**BALLARD**
+* * FREMONT/UW* * 
 
-*Eat
-  *Paseo (Ballard: T-Sat 11-8, Sun 11-6)
+* Eat
+  * Paseo (T-Fri 11-9, Sat 11-8)
+  * Din Tai Fung
+  * Chinook's
+  * Pestle Rock
+  * Bizzarro
+  * Rock Creek Seafood
   
-*Activities  
-  *Ballard Locks (7a - 8:45p; free)
+* Activities
+  
+  * Fremont Troll
+  * Gas Works Park
+  
+
+  
+* * BALLARD* * 
+
+* Eat
+  * Paseo (Ballard: T-Sat 11-8, Sun 11-6)
+  
+* Activities  
+  * Ballard Locks (7a - 8:45p; free)
   
 
 
-**ELSEWHERE**
-*Eat
-  *Rainier BBQ
+* * ELSEWHERE* * 
+* Eat
+  * Rainier BBQ
   
-*Activities
-  *Boeing Factory Tour
-  *Hiking
+* Activities
+  * Boeing Factory Tour
+  * Hiking
   
 
