@@ -1,5 +1,6 @@
 # seattleBucketList
-seattle 2k16!!! it's gonna be lit fam!!
+seattle 2k16!!! 
+
 thanks to jackie tseng
 
 ##Things to do by category
@@ -19,6 +20,13 @@ thanks to jackie tseng
 * Comedy Night (Pioneer Sq / Jai Thai)
 * Gameworks Arcade
 
+**CONCERTS**
+
+* Capitol Hill Block Party
+
+**PLACES**
+
+* Vancouver, CA
 
 **RESTAURANTS** 
 
