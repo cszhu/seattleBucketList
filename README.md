@@ -3,9 +3,14 @@ Seattle is a big city, and we're only going to be here for 12 weeks. The goal is
 
 Shoutout to Jackie Tseng for many of the activities on here!!
 
+[VisitSeattle.org](http://www.visitseattle.org/) is a great resource.
+
+[Top 25 Attractions in Seattle](http://www.visitseattle.org/things-to-do/sightseeing/top-25-attractions/).
+
 ##Things to do by category
 **ACTIVITIES** 
 
+* Lake Union
 * Kayaking
 * Pike's Place (Morning / lunch)
 * Laser Show (Saturday night)
@@ -19,14 +24,34 @@ Shoutout to Jackie Tseng for many of the activities on here!!
 * Bill and Melinda Gates Visitor's Center (T 10-6, W-Sat 10-5)
 * Comedy Night (Pioneer Sq / Jai Thai)
 * Gameworks Arcade
+* Seattle Aquarium
+* Seattle Great Wheel
+* Chihuly Garden and Glass
 
-**CONCERTS**
+**FESTIVALS**
+[Here's](http://www.visitseattle.org/things-to-do/events/festivals/) a list of some festivals.
 
-* Capitol Hill Block Party
+* [Seafood Fest](http://seafoodfest.org/) (July 9 - 10)
+* [Bellevue Arts Museum ARTSFair](http://www.bellevuearts.org/fair/index.html) (July 29 - 31)
+* [Capitol Hill Block Party](http://capitolhillblockparty.com/) (July 22 - 24, $150)
+* [Hempfest](http://www.hempfest.org/) (August 19 - 21)
+* [Jamfest](http://www.wingluke.org/jamfest) (Every 3rd Thursday this summer, $6 for students)
+* [Seattle Art Fair](http://seattleartfair.com/) (August 4 - 7)
+* [Summer Meltdown](http://summermeltdownfest.com/initial-summer-meltdown-2016-lineup-announced/) (August 11 - 14, $200)
+  * Griz, Gramatik, STS9, Beats Antique, Keys N Krates. 4 days of live music, stunning mountain scenery, and outdoor recreation including rock climbing, river rafting, and horseback riding.
 
 **PLACES**
+[Here's](http://www.visitseattle.org/things-to-do/day-trips/) a list of some day trips.
 
+* Mount Rainier
+  * In the summer, adventure seekers climb technical glacier routes to summit the massive mountain. Takes 3 hours to get there by car.
 * Vancouver, CA
+* Bainbridge Island 
+  * The view of the Seattle skyline from the ferry is worth the trip alone. The added bonus of strolling around downtown Bainbridge’s galleries, boutiques, coffeehouses and cafes is even more rewarding. Shop in historic Winslow, which features cute little cafes and island shops offering unusual gifts from the Northwest and beyond.
+* Snoqualmie Falls
+* Leavenworth
+* Tacoma
+
 
 **RESTAURANTS** 
 
@@ -57,6 +82,7 @@ Shoutout to Jackie Tseng for many of the activities on here!!
 * Pinball Museum ($10 adult)
 * EMP Museum ($20 student)
 * Chihuly ($22 adult)
+* Pacific Science Center
 * Boeing Factory Tour
 
 ##Things to do by area
