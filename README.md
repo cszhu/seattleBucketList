@@ -65,35 +65,35 @@ Shoutout to Jackie Tseng for many of the activities on here!!
 
 **RESTAURANTS** 
 
-* Espresso Vivace (coffee)
-* Paseo (Ballard: T-Sat 11-8, Sun 11-6; Fremont: T-Fri 11-9, Sat 11-8)
-* Resto (M-Sat: 6:30p-10p)
-* Shiro's (line up at 5)
-* Maneki (reservation)
-* Americana
-* The Pink Door
-* Molly Moon Ice Cream (12-10)
-* Tsukushinbo (reservation)
-* Chinook's
-* Pestle Rock
-* Rainier BBQ
-* Bizzarro
-* Red Cow
-* Rock Creek Seafood
-* Blind Pig Bistro
+* [Espresso Vivace](https://www.yelp.com/biz/espresso-vivace-roasteria-seattle) (4 stars; coffee)
+* [Paseo](https://www.yelp.com/biz/paseo-seattle-3) (4.5 stars; caribbean) (Ballard: T-Sat 11-8, Sun 11-6; Fremont: T-Fri 11-9, Sat 11-8)
+* [Resto](https://www.yelp.com/biz/resto-seattle) (4 stars; seafood) (M-Sat: 6:30p-10p)
+* [Shiro's](https://www.yelp.com/biz/shiros-seattle) (4 stars; sushi) (line up at 5)
+* [Maneki](https://www.yelp.com/biz/maneki-seattle) (4 stars; japanese) (reservation)
+* [Americana](https://www.yelp.com/biz/americana-seattle) (4 stars; american)
+* [The Pink Door](https://www.yelp.com/biz/the-pink-door-seattle) (4 stars; italian)
+* [Molly Moon Ice Cream](https://www.yelp.com/biz/molly-moons-homemade-ice-cream-seattle-6) (4 stars; ice cream)
+* [Tsukushinbo](https://www.yelp.com/biz/tsukushinbo-seattle) (4 stars; japanese) (reservation)
+* [Chinook's](https://www.yelp.com/biz/chinooks-seattle) (4 stars; seafood)
+* [Pestle Rock](https://www.yelp.com/biz/pestle-rock-seattle) (4.5 stars; thai)
+* [Rainier BBQ](https://www.yelp.com/biz/rainier-restaurant-and-bbq-seattle) (4 stars; bbq and vietnamese)
+* [Bizzarro](https://www.yelp.com/biz/bizzarro-italian-caf%C3%A9-seattle-2) (4 stars; italian)
+* [Red Cow](https://www.yelp.com/biz/red-cow-seattle) (4 stars; french steakhouse)
+* [Rockcreek Seafood](https://www.yelp.com/biz/rockcreek-seafood-and-spirits-seattle) (4 stars; seafood)
+* [Blind Pig Bistro](https://www.yelp.com/biz/blind-pig-bistro-seattle) (4.5 stars; american)
 
 
 **TOURS/MUSEUMS** 
 
-* Underground Tour ($15 student)
-* Duck Tour ($28 adult)
-* Bites of Seattle Tour
-* Museum of Art
-* Pinball Museum ($10 adult)
-* EMP Museum ($20 student)
+* [Underground Tour](http://www.undergroundtour.com/) ($16 student)
+* [Duck Tour](http://www.ridetheducksofseattle.com/) ($29 adult)
+* [Bites of Seattle Tour](https://www.seattlebitesfoodtours.com/) ($41.99 per person; $36.99 per person if group of 5+)
+* [Museum of Art](http://www.seattleartmuseum.org/)
+* [Pinball Museum](http://www.seattlepinballmuseum.com/) ($15 adult)
+* [EMP Museum](http://www.empmuseum.org/) ($22 student)
 * [Chihuly Garden and Glass](http://www.chihulygardenandglass.com/) ($22)
-* Pacific Science Center
-* Boeing Factory Tour
+* [Pacific Science Center](https://www.pacificsciencecenter.org/)
+* [Boeing Factory Tour](http://www.futureofflight.org/)
 
 ##Things to do by area
 **CAP HILL / MADRONA** 
