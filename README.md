@@ -1,32 +1,39 @@
-# Guide to Amazon Internship in Seattle: How to Have a Bomb Ass Time
+# Seattle Internship Guide: How to Have a Bomb Ass Time
 Seattle is a big city, and we're only going to be here for 12 weeks. The goal is to hit everything on this bucketlist.
 
 Shoutout to Jackie Tseng for many of the activities on here!!
 
-[VisitSeattle.org](http://www.visitseattle.org/) is a great resource.
+**ARTICLES / SOURCES**
 
-[Top 25 Attractions in Seattle](http://www.visitseattle.org/things-to-do/sightseeing/top-25-attractions/).
+* [VisitSeattle.org](http://www.visitseattle.org/)
+* [Top 25 Attractions in Seattle](http://www.visitseattle.org/things-to-do/sightseeing/top-25-attractions/)
+* [Moving to Seattle Megathread](https://www.reddit.com/r/Seattle/comments/3g4tkt/2015_moving_to_seattle_megathread/)
 
 ##Things to do by category
 **ACTIVITIES** 
 
-* Lake Union
-* Kayaking
-* Pike's Place (Morning / lunch)
-* Laser Show (Saturday night)
-* Ice Cream Cruise (Sun 11-5; $11 adult)
-* Columbia Tower (9a-10p; $9 student)
-* Fremont Troll
-* Gas Works Park
-* Ballard Locks (7a - 8:45p; free)
-* Space Needle
-* Smith Tower Observatory (10-5, $7.50)
-* Bill and Melinda Gates Visitor's Center (T 10-6, W-Sat 10-5)
-* Comedy Night (Pioneer Sq / Jai Thai)
-* Gameworks Arcade
-* Seattle Aquarium
-* Seattle Great Wheel
-* Chihuly Garden and Glass
+* [Kayaking](http://www.nwoc.com/rental/) in Seattle near Lake Union
+  * [Kayaking with ORCAS](http://www.sea-quest-kayak.com/sea-kayaking-locations/kayak-tours-schedule/)
+* [Pike's Place](http://pikeplacemarket.org/) for morning / lunch
+* [Laser Show](https://www.pacificsciencecenter.org/laser-dome/) (Saturday night)
+* [Sunday Ice Cream Cruise](http://www.seattleferryservice.com/sunday-ice-cream-cruise/) (Sun 11a - 5p; $12 adult)
+* [Columbia Tower Sky View Observatory](http://www.skyviewobservatory.com/) (9a - 10p; $9 student)
+* [Fremont Troll](https://www.yelp.com/biz/the-fremont-troll-seattle)
+* [Gas Works Park](https://www.yelp.com/biz/gas-works-park-seattle-2)
+* [Ballard Locks](http://www.myballard.com/ballard-locks-seattle/) (7a - 8:45p; free)
+* [Space Needle](http://www.spaceneedle.com/home/index-fallback.html)
+* [Smith Tower Observatory](http://smithtower.com/observe/observation-deck-info-calendar/) (10a - 5p; $7.50)
+* [Bill and Melinda Gates Visitor's Center](http://www.gatesfoundation.org/Visitor-Center) (Tues - Sat; 10a -5p; free)
+* Comedy Night (Pioneer Sq / [Jai Thai](https://www.facebook.com/jaithaibroadway/))
+* [Gameworks Arcade](https://www.yelp.com/biz/gameworks-seattle)
+* [Seattle Aquarium](http://www.seattleaquarium.org/)
+* [Seattle Great Wheel](http://seattlegreatwheel.com/) ($13)
+
+**CLUBS / LOUNGES**
+
+* [Star Karaoke](https://www.yelp.com/biz/star-karaoke-seattle-3?osq=clubs) (No alcohol)
+* [Q Nightclub](https://www.yelp.com/biz/q-nightclub-seattle-2?osq=night+club) (21+)
+* [Foundation Nightclub](https://www.yelp.com/biz/foundation-nightclub-seattle) (21+)
 
 **FESTIVALS**
 
@@ -45,14 +52,15 @@ Shoutout to Jackie Tseng for many of the activities on here!!
 
 [Here's](http://www.visitseattle.org/things-to-do/day-trips/) a list of some day trips.
 
-* Mount Rainier
-  * In the summer, adventure seekers climb technical glacier routes to summit the massive mountain. Takes 3 hours to get there by car.
-* Vancouver, CA
-* Bainbridge Island 
+* [Mount Rainier](https://www.yelp.com/biz/mount-rainier-national-park-ashford) (1h 48m)
+  * In the summer, adventure seekers climb technical glacier routes to summit the massive mountain.
+* [Vancouver, B.C.](http://www.tourismvancouver.com/) (2h 30m)
+  * Remember to bring your passport! Travel times may vary based on border control lines.
+* [Bainbridge Island](https://www.bainbridgeisland.com/) (1h)
   * The view of the Seattle skyline from the ferry is worth the trip alone. The added bonus of strolling around downtown Bainbridge’s galleries, boutiques, coffeehouses and cafes is even more rewarding. Shop in historic Winslow, which features cute little cafes and island shops offering unusual gifts from the Northwest and beyond.
-* Snoqualmie Falls
-* Leavenworth
-* Tacoma
+* [Snoqualmie Falls](http://www.snoqualmiefalls.com/) (40m)
+* [Leavenworth](http://www.leavenworth.org/) (2h 20m)
+* [Tacoma, WA](http://www.cityoftacoma.org/) (40m)
 
 
 **RESTAURANTS** 
@@ -83,7 +91,7 @@ Shoutout to Jackie Tseng for many of the activities on here!!
 * Museum of Art
 * Pinball Museum ($10 adult)
 * EMP Museum ($20 student)
-* Chihuly ($22 adult)
+* [Chihuly Garden and Glass](http://www.chihulygardenandglass.com/) ($22)
 * Pacific Science Center
 * Boeing Factory Tour
 
