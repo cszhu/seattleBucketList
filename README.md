@@ -12,38 +12,38 @@ Shoutout to Jackie Tseng for many of the activities on here!!
 ##Things to do by category
 **ACTIVITIES** 
 
-* [Kayaking](http://www.nwoc.com/rental/) in Seattle near Lake Union
-  * [Kayaking with ORCAS](http://www.sea-quest-kayak.com/sea-kayaking-locations/kayak-tours-schedule/)
-* [Pike's Place](http://pikeplacemarket.org/) for morning / lunch
-* [Laser Show](https://www.pacificsciencecenter.org/laser-dome/) (Saturday night)
-* [Sunday Ice Cream Cruise](http://www.seattleferryservice.com/sunday-ice-cream-cruise/) (Sun 11a - 5p; $12 adult)
+* Comedy Night (Pioneer Sq / [Jai Thai](https://www.facebook.com/jaithaibroadway/))
+* [Ballard Locks](http://www.myballard.com/ballard-locks-seattle/) (7a - 8:45p; free)
+* [Bill and Melinda Gates Visitor's Center](http://www.gatesfoundation.org/Visitor-Center) (Tues - Sat; 10a -5p; free)
 * [Columbia Tower Sky View Observatory](http://www.skyviewobservatory.com/) (9a - 10p; $9 student)
 * [Fremont Troll](https://www.yelp.com/biz/the-fremont-troll-seattle)
-* [Gas Works Park](https://www.yelp.com/biz/gas-works-park-seattle-2)
-* [Ballard Locks](http://www.myballard.com/ballard-locks-seattle/) (7a - 8:45p; free)
-* [Space Needle](http://www.spaceneedle.com/home/index-fallback.html)
-* [Smith Tower Observatory](http://smithtower.com/observe/observation-deck-info-calendar/) (10a - 5p; $7.50)
-* [Bill and Melinda Gates Visitor's Center](http://www.gatesfoundation.org/Visitor-Center) (Tues - Sat; 10a -5p; free)
-* Comedy Night (Pioneer Sq / [Jai Thai](https://www.facebook.com/jaithaibroadway/))
 * [Gameworks Arcade](https://www.yelp.com/biz/gameworks-seattle)
+* [Gas Works Park](https://www.yelp.com/biz/gas-works-park-seattle-2)
+* [Kayaking](http://www.nwoc.com/rental/)
+  * [Kayaking with ORCAS!!](http://www.sea-quest-kayak.com/sea-kayaking-locations/kayak-tours-schedule/)
+* [Laser Show](https://www.pacificsciencecenter.org/laser-dome/) (Saturday night)
+* [Pike's Place](http://pikeplacemarket.org/)
 * [Seattle Aquarium](http://www.seattleaquarium.org/)
 * [Seattle Great Wheel](http://seattlegreatwheel.com/) ($13)
+* [Smith Tower Observatory](http://smithtower.com/observe/observation-deck-info-calendar/) (10a - 5p; $7.50)
+* [Space Needle](http://www.spaceneedle.com/home/index-fallback.html)
+* [Sunday Ice Cream Cruise](http://www.seattleferryservice.com/sunday-ice-cream-cruise/) (Sun 11a - 5p; $12 adult)
 
 **CLUBS / LOUNGES**
 
-* [Star Karaoke](https://www.yelp.com/biz/star-karaoke-seattle-3?osq=clubs) (No alcohol)
-* [Q Nightclub](https://www.yelp.com/biz/q-nightclub-seattle-2?osq=night+club) (21+)
 * [Foundation Nightclub](https://www.yelp.com/biz/foundation-nightclub-seattle) (21+)
+* [Q Nightclub](https://www.yelp.com/biz/q-nightclub-seattle-2?osq=night+club) (21+)
+* [Star Karaoke](https://www.yelp.com/biz/star-karaoke-seattle-3?osq=clubs) (No alcohol)
 
 **FESTIVALS**
 
 [Here's](http://www.visitseattle.org/things-to-do/events/festivals/) a list of some festivals.
 
-* [Seafood Fest](http://seafoodfest.org/) (July 9 - 10)
 * [Bellevue Arts Museum ARTSFair](http://www.bellevuearts.org/fair/index.html) (July 29 - 31)
 * [Capitol Hill Block Party](http://capitolhillblockparty.com/) (July 22 - 24, $150)
 * [Hempfest](http://www.hempfest.org/) (August 19 - 21)
 * [Jamfest](http://www.wingluke.org/jamfest) (Every 3rd Thursday this summer, $6 for students)
+* [Seafood Fest](http://seafoodfest.org/) (July 9 - 10)
 * [Seattle Art Fair](http://seattleartfair.com/) (August 4 - 7)
 * [Summer Meltdown](http://summermeltdownfest.com/initial-summer-meltdown-2016-lineup-announced/) (August 11 - 14, $200)
   * Griz, Gramatik, STS9, Beats Antique, Keys N Krates. 4 days of live music, stunning mountain scenery, and outdoor recreation including rock climbing, river rafting, and horseback riding.
@@ -52,35 +52,35 @@ Shoutout to Jackie Tseng for many of the activities on here!!
 
 [Here's](http://www.visitseattle.org/things-to-do/day-trips/) a list of some day trips.
 
-* [Mount Rainier](https://www.yelp.com/biz/mount-rainier-national-park-ashford) (1h 48m)
-  * In the summer, adventure seekers climb technical glacier routes to summit the massive mountain.
-* [Vancouver, B.C.](http://www.tourismvancouver.com/) (2h 30m)
-  * Remember to bring your passport! Travel times may vary based on border control lines.
 * [Bainbridge Island](https://www.bainbridgeisland.com/) (1h)
   * The view of the Seattle skyline from the ferry is worth the trip alone. The added bonus of strolling around downtown Bainbridge’s galleries, boutiques, coffeehouses and cafes is even more rewarding. Shop in historic Winslow, which features cute little cafes and island shops offering unusual gifts from the Northwest and beyond.
-* [Snoqualmie Falls](http://www.snoqualmiefalls.com/) (40m)
 * [Leavenworth](http://www.leavenworth.org/) (2h 20m)
+* [Mount Rainier](https://www.yelp.com/biz/mount-rainier-national-park-ashford) (1h 48m)
+  * In the summer, adventure seekers climb technical glacier routes to summit the massive mountain.
+* [Snoqualmie Falls](http://www.snoqualmiefalls.com/) (40m)
 * [Tacoma, WA](http://www.cityoftacoma.org/) (40m)
+* [Vancouver, B.C.](http://www.tourismvancouver.com/) (2h 30m)
+  * Remember to bring your passport! Travel times may vary based on border control lines.
 
 
 **RESTAURANTS** 
 
-* [Espresso Vivace](https://www.yelp.com/biz/espresso-vivace-roasteria-seattle) (4 stars; coffee)
-* [Paseo](https://www.yelp.com/biz/paseo-seattle-3) (4.5 stars; caribbean) (Ballard: T-Sat 11-8, Sun 11-6; Fremont: T-Fri 11-9, Sat 11-8)
-* [Resto](https://www.yelp.com/biz/resto-seattle) (4 stars; seafood) (M-Sat: 6:30p-10p)
-* [Shiro's](https://www.yelp.com/biz/shiros-seattle) (4 stars; sushi) (line up at 5)
-* [Maneki](https://www.yelp.com/biz/maneki-seattle) (4 stars; japanese) (reservation)
 * [Americana](https://www.yelp.com/biz/americana-seattle) (4 stars; american)
-* [The Pink Door](https://www.yelp.com/biz/the-pink-door-seattle) (4 stars; italian)
-* [Molly Moon Ice Cream](https://www.yelp.com/biz/molly-moons-homemade-ice-cream-seattle-6) (4 stars; ice cream)
-* [Tsukushinbo](https://www.yelp.com/biz/tsukushinbo-seattle) (4 stars; japanese) (reservation)
+* [Bizzarro](https://www.yelp.com/biz/bizzarro-italian-caf%C3%A9-seattle-2) (4 stars; italian)
+* [Blind Pig Bistro](https://www.yelp.com/biz/blind-pig-bistro-seattle) (4.5 stars; american)
 * [Chinook's](https://www.yelp.com/biz/chinooks-seattle) (4 stars; seafood)
+* [Espresso Vivace](https://www.yelp.com/biz/espresso-vivace-roasteria-seattle) (4 stars; coffee)
+* [Maneki](https://www.yelp.com/biz/maneki-seattle) (4 stars; japanese) (reservation)
+* [Molly Moon Ice Cream](https://www.yelp.com/biz/molly-moons-homemade-ice-cream-seattle-6) (4 stars; ice cream)
+* [Paseo](https://www.yelp.com/biz/paseo-seattle-3) (4.5 stars; caribbean)
 * [Pestle Rock](https://www.yelp.com/biz/pestle-rock-seattle) (4.5 stars; thai)
 * [Rainier BBQ](https://www.yelp.com/biz/rainier-restaurant-and-bbq-seattle) (4 stars; bbq and vietnamese)
-* [Bizzarro](https://www.yelp.com/biz/bizzarro-italian-caf%C3%A9-seattle-2) (4 stars; italian)
 * [Red Cow](https://www.yelp.com/biz/red-cow-seattle) (4 stars; french steakhouse)
+* [Resto](https://www.yelp.com/biz/resto-seattle) (4 stars; seafood) 
 * [Rockcreek Seafood](https://www.yelp.com/biz/rockcreek-seafood-and-spirits-seattle) (4 stars; seafood)
-* [Blind Pig Bistro](https://www.yelp.com/biz/blind-pig-bistro-seattle) (4.5 stars; american)
+* [Shiro's](https://www.yelp.com/biz/shiros-seattle) (4 stars; sushi) (line up at 5)
+* [The Pink Door](https://www.yelp.com/biz/the-pink-door-seattle) (4 stars; italian)
+* [Tsukushinbo](https://www.yelp.com/biz/tsukushinbo-seattle) (4 stars; japanese) (reservation)
 
 
 **TOURS/MUSEUMS** 
@@ -184,7 +184,7 @@ Shoutout to Jackie Tseng for many of the activities on here!!
   
 
   
-** BALLARD** 
+**BALLARD** 
 
 * Eat
   * Paseo (Ballard: T-Sat 11-8, Sun 11-6)
