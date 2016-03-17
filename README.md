@@ -34,6 +34,7 @@ Shoutout to Jackie Tseng for many of the activities on here!!
 * [Foundation Nightclub](https://www.yelp.com/biz/foundation-nightclub-seattle) (21+)
 * [Q Nightclub](https://www.yelp.com/biz/q-nightclub-seattle-2?osq=night+club) (21+)
 * [Star Karaoke](https://www.yelp.com/biz/star-karaoke-seattle-3?osq=clubs) (No alcohol)
+* [Neighbors] (http://www.neighboursnightclub.com/)(18+ on Wednesday nights and 2am-4am on every other night)
 
 **FESTIVALS**
 
