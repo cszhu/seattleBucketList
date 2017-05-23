@@ -9,7 +9,7 @@ Shoutout to Jackie Tseng for many of the activities on here!!
 * [Top 25 Attractions in Seattle](http://www.visitseattle.org/things-to-do/sightseeing/top-25-attractions/)
 * [Moving to Seattle Megathread](https://www.reddit.com/r/Seattle/comments/3g4tkt/2015_moving_to_seattle_megathread/)
 
-##Things to do by category
+## Things to do by category
 **ACTIVITIES** 
 
 * Comedy Night (Pioneer Sq / [Jai Thai](https://www.facebook.com/jaithaibroadway/))
@@ -96,7 +96,7 @@ Shoutout to Jackie Tseng for many of the activities on here!!
 * [Pacific Science Center](https://www.pacificsciencecenter.org/)
 * [Boeing Factory Tour](http://www.futureofflight.org/)
 
-##Things to do by area
+## Things to do by area
 **CAP HILL / MADRONA** 
 
 * Eat
